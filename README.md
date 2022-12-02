@@ -1,2 +1,2 @@
-# NicoStopGame
-anti smoking game project
+an education sex game
+
